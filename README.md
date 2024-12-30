@@ -2,3 +2,4 @@
 ##### Automat (canva.com): https://www.canva.com/design/DAGGs3gmwFM/qDr2GClNsDIRCApusMO85g/view?utm_content=DAGGs3gmwFM&utm_campaign=designshare&utm_medium=link&utm_source=editor
 ##### PTTKGT - Google Drive: https://drive.google.com/drive/folders/1kKKbhZYYF-v_pBmKLZG_RuWPz2IiV-3-
 ##### Automat - Google Drive: https://drive.google.com/drive/u/1/folders/1f9J2VxFWw9Phw26EpoR_YsMGWh1WI3Pr
+##### Link Drive of everything: https://drive.google.com/drive/folders/1hgV_p_2IoJO4RazR1g0_yxuNjFjqZNm4?usp=sharing
